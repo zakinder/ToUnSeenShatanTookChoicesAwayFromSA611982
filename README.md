@@ -1,2 +1,7 @@
 # ToUnSeenShatanTookChoicesAwayFromSA611982
+
 ToUnSeenShatanTookChoicesAwayFromSA611982
+
+NoMercyShallBeGivenToUnSheenWhoTookChoicesFromSakinderAli List
+
+![VFP](https://github.com/zakinder/ToUnSeenShatanTookChoicesAwayFromSA611982/blob/main/UnSeenShatanTookChoicesAwayFromSA611982.jpg "THEJustice")
